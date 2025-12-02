@@ -1,2 +1,3 @@
 Submit Your assignments here...
 [Week 1 Electroverse Assignment.pdf](https://github.com/user-attachments/files/23837758/Week.1.Electroverse.Assignment.pdf)
+[Week1.pdf](https://github.com/user-attachments/files/23881624/Week1.pdf)
